@@ -1,0 +1,2 @@
+# cursodeinformat
+pagina de cobatab
